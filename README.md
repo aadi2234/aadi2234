@@ -3,7 +3,7 @@
 🎓 **B.Tech Artificial Intelligence & Data Science** student at **Vishwakarma Institute of Technology, Pune (2027)**  
 🎓 **Diploma in Computer Technology** from **K.K.Wagh Polytechnic, Nashik (2024)**  
 💻 Passionate about **Machine Learning, Artificial Intelligence, Data Science , Data Analytics, Web & Mobile App Development**  
-📍 Pune, Maharashtra | 📧 [aadityadhakane@gmail.com](mailto:aadityadhakane@gmail.com) | 🌐 [LinkedIn](www.linkedin.com/in/aditya-a-dhakane8067)  
+📍 Pune, Maharashtra | 📧 [aadityadhakane@gmail.com](mailto:aadityadhakane@gmail.com) | 🌐 [LinkedIn](https://www.linkedin.com/in/aditya-a-dhakane8067)  
 
 ---
 
